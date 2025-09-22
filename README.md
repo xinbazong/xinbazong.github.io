@@ -1,1 +1,1 @@
-# xinbazong.github.io
+# [xinbazong.github.io](https://hoo.be/jmcomic)
